@@ -1,1 +1,1 @@
-# Wanderlust-og-Gujarat
+# Wanderlust-of-Gujarat
